@@ -6,7 +6,8 @@
 
 간단하고 담백한 메모가 하나, 둘 모이게되면 먼 훗날 우리가 간단하고 담백한 메모들을 봤을때 하루하루가 바빴던 그때의 나를 떠올리며 웃을 수 있을거예요.
 
-![Simulator Screen Shot - iPhone 14 Pro Max - 2023-03-30 at 00 45 58]
+
+https://user-images.githubusercontent.com/70623959/228986521-933792d9-89e8-4f96-88a9-b8fbc3376c6a.png)
 
 
 
